@@ -1,1 +1,0 @@
-# beatriz-06-outubro
